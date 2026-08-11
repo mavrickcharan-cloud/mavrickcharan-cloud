@@ -1,4 +1,4 @@
-# Hi 👋, I'm Charan Kumar
+# Hi 👋, I'm Minamanoori Charan Kumar
 
 ## 🚀 Aspiring AI Developer | Python Programmer | Cybersecurity Learner
 
